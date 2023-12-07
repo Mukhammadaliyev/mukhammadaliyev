@@ -1,1 +1,1 @@
-### Free Palastin <img &#127477;&#127480;>
+### Free Palastin <img src=&#127477;&#127480;>
